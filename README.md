@@ -148,3 +148,51 @@ Great People to Hire: awesome professionals whom I've already worked with
 🇧🇷 [Ricardo Vasconcellos](https://www.linkedin.com/in/ricardo-vasconcellos-23618829/)
 
 🇧🇷 [Fernando Medeiros](https://www.linkedin.com/in/fernando-medeiros-531a1a26/)
+
+[Enzo Glauber](https://www.linkedin.com/in/enzoglauber/)
+
+[Sara Cristine Tiedt](https://www.linkedin.com/in/sara-cristine-tiedt-270472174/)
+
+[Thiago Marson da Silva](https://www.linkedin.com/in/thiago-marson-da-silva-240067157/)
+
+[Cleisson Pierre](https://www.linkedin.com/in/cleissonpierre/)
+
+[Bruno Nascimento](https://www.linkedin.com/in/bruno-nascimento-71a489181/)
+
+[Rodrigo Guilherme](https://www.linkedin.com/in/rodrigo-guilherme-002391131/)
+
+[Daniel Angelotti](https://www.linkedin.com/in/daniel-angelotti-05428a3a/)
+
+[Victor Souza](https://www.linkedin.com/in/vhbsouza/)
+
+[Fernando de Carvalho Souza](https://www.linkedin.com/in/fernando-de-carvalho-sousa-30777752/)
+
+[Andrea Ferreira](https://www.linkedin.com/in/andrea-ferreira-195399167/)
+
+[Breno Cupertino](https://www.linkedin.com/in/brenocupertino/)
+
+[Carlos Alexandre Oliveira de Abreu](https://www.linkedin.com/in/carlos-alexandre-oliveira-de-abreu-4161a2b5/)
+
+[Igor Gakiya](https://www.linkedin.com/in/igor-gakiya-79bb58136/)
+
+[Maurício Cavalari](https://www.linkedin.com/in/maurício-cavalari-aa18ab113/)
+
+[Lucas Fabiano](https://www.linkedin.com/in/lufabiano/)
+
+[Raphael Ramos](https://www.linkedin.com/in/raphaelramosbr/)
+
+[Heslei Silva](https://www.linkedin.com/in/hesleisilva/)
+
+[Carlos Bonadio](https://www.linkedin.com/in/carlosbonadio/)
+
+[Caroline Guarnieri](https://www.linkedin.com/in/caroline-guarnieri-ab21a31b9/)
+
+[Daniel Fernandes Albano de Oliveira](https://www.linkedin.com/in/daniel-fernandes-albano-de-oliveira-59552898/)
+
+[Danilo Saita](https://www.linkedin.com/in/danilo-saita/)
+
+[Denis Felix da Silva](https://www.linkedin.com/in/denisfelix/)
+
+[Eduardo Rebelo](https://www.linkedin.com/in/eduardo-rebelo/)
+
+[Felipe Fernandez](https://www.linkedin.com/in/felipee-fernandez/)
