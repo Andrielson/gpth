@@ -208,7 +208,7 @@ Great People to Hire: awesome professionals whom I've already worked with
 🇺🇸 [Steve Thompson](https://www.linkedin.com/in/stevethompsoneng/)
 
 
-## Quality Analists
+## Quality Analysts
 
 🇧🇷 [Cleisson Pierre](https://www.linkedin.com/in/cleissonpierre/)
 
@@ -221,7 +221,7 @@ Great People to Hire: awesome professionals whom I've already worked with
 🇧🇷 [Jakson Rodrigues de Souza](https://www.linkedin.com/in/jakson-rodrigues-de-sousa-10b35876/)
 
 
-# Solutions Architects
+## Solutions Architects
 
 🇧🇷 [Adriano Mota](https://www.linkedin.com/in/adriano-mota-8289a540/)
 
